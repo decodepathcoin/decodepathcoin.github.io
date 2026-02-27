@@ -1,0 +1,1 @@
+# decodepathcoin.github.io
